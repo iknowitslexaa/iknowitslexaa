@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning Marketing Management & Software Development
 - 💞️ I’m looking to collaborate on something
 - 📫 How to reach me: Alexandra.mn.almeida@protonmail.com
-- 😄 Pronouns: clown/clownself
 - ⚡ Fun fact: Giraffes are 30 times more likely to get hit by lightning than people.
 
 <!---
